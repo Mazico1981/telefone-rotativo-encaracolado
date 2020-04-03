@@ -1,0 +1,1 @@
+# telefone-rotativo-encaracolado
